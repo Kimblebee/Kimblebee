@@ -1,5 +1,5 @@
 ### 🐝🐻
-Hello yes I post things here but they are private and TOP SECRET >;)
+Hello yes I post things here sometimes
 
 <!--
 **Kimblebee/Kimblebee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
